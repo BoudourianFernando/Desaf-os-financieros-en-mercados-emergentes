@@ -1,1 +1,2 @@
 # Desaf-os-financieros-en-mercados-emergentes
+Las crisis geopolíticas impactan directamente a los mercados emergentes. La inestabilidad política genera desconfianza en los inversores, depreciación de monedas y alza en las tasas de interés. Para enfrentar estos desafíos, es clave fortalecer las reservas financieras, diversificar los sectores productivos y fomentar políticas económicas que estabilicen el flujo de capital y reduzcan la volatilidad.
